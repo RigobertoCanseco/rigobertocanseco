@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi  👋
+
+![gif](https://media.giphy.com/media/1lvotGQwhzi6O0gQtV/giphy.gif)
 
 <!--
 **rigobertocanseco/rigobertocanseco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
