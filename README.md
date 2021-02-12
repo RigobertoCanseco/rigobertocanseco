@@ -1,5 +1,3 @@
-### Hi  👋
-
 ![gif](https://d2r55xnwy6nx47.cloudfront.net/uploads/2017/02/Bootstrap_1000.gif)
 
 <!--
