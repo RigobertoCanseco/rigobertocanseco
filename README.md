@@ -1,4 +1,4 @@
-[![gif](https://github.com/rigobertocanseco/rigobertocanseco/blob/main/fractal.gif)](https://github.com/rigobertocanseco/)
+[![gif](https://thumbs.gfycat.com/RecklessUnacceptableAsianconstablebutterfly-size_restricted.gif)](https://github.com/rigobertocanseco/)
 
 <!--
 **rigobertocanseco/rigobertocanseco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
